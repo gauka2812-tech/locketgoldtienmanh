@@ -1,2 +1,0 @@
-# locketgoldtienmanh
-tienmanhshop
